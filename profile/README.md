@@ -4,7 +4,7 @@ TC Lottery is a mobile app and website where users can register to play games an
 
 # 👉 [TC Lottery Join Now ](https://damanclub.in/#/register?r_code=v4NFF2173452)
 
-# 👉 [Download TC Lottery App](https://www.bcgameapk.app)
+# 👉 [Download TC Lottery App](https://bcgameapk.app)
 
 # 👉 [Get TC Lottery Gift Code ](https://www.91-clubapk.com)
 
