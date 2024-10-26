@@ -2,11 +2,11 @@
 
 TC Lottery is a mobile app and website where users can register to play games and win real money. When players win, the earnings are added to their TC Lottery account and can easily be withdrawn to their bank account. It’s recommended to download the app only from the official TC Lottery website to ensure credibility. Plus, new users who sign up through the provided link receive a ₹500 bonus.
 
-# 👉 [TC Lottery Join Now ](https://damanclub.in/#/register?r_code=v4NFF2173452)
+## 👉 [TC Lottery Join Now ](https://damanclub.in/#/register?r_code=v4NFF2173452)
 
-# 👉 [Download TC Lottery App](https://bcgameapk.app)
+## 👉 [Download TC Lottery App](https://bcgameapk.app)
 
-# 👉 [Get TC Lottery Gift Code ](https://www.91-clubapk.com)
+## 👉 [Get TC Lottery Gift Code ](https://www.91-clubapk.com)
 
 ## What is the Use of TC Lottery ?
 
